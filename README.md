@@ -5,4 +5,4 @@
 - 💡 Skills: Kali Linux, Networking, Coding
 - 📫 Follow me on Instagram (@perxpective.jpeg)!
 - 😄 Pronouns: He/Him
-- 🖤🤍💜 Ace <3
+- 🖤🤍💜
